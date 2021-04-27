@@ -1,7 +1,7 @@
 # NotNite preview free dcownload
 
-fuck this website
+fuck m$ft. more active on other places
 
+[gitlab](https://gitlab.com/jules)
 [gitdab](https://gitdab.com/j)  
-[gitlab](https://gitlab.com/notnite)  
 [wobsite](https://notnite.com)
