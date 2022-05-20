@@ -1,6 +1,6 @@
 # NotNite preview free dcownload
 
-fuck m$ft. more active on other places
+i write Cool Open Source Software in my free time
 
 [gitlab](https://gitlab.com/jules)  
 [gitdab](https://gitdab.com/j)  
